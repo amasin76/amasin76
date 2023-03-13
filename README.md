@@ -12,8 +12,6 @@
 
 - 📫 How to reach me [amasin76@gmail.com](mailto:amasin76@gmail.com)
 
-- ⚡ Fun fact : guy want modern web app with IE support ☠
-
 ### Portfolio Website
 
 🔗 : [ITRI.LIVE](https://itri.live) ( coming coon.. )
