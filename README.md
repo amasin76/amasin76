@@ -14,7 +14,7 @@
 
 ### Portfolio Website
 
-🔗 : [ITRI.LIVE](https://itri.live) ( coming coon... )
+🔗 : [ITRI.TECH](https://itri.tech)
 
 ### Skills
 
