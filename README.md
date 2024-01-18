@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on **build Web Apps**
 
-- 🚀 Transforming Great **Ideas** ➡ ⚡ Into Great **Apps** ➡ 🌱 Yielding Great **Stats**
+- 🚀 Transforming Great **Ideas** ➡ ⚡ Into Powerful **Apps** ➡ 🌱 Yielding Impressive **Stats**
 
 - 📫 How to reach me [amasin76@gmail.com](mailto:amasin76@gmail.com)
 
