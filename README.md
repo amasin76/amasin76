@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on **build Web Apps**
 
-- 🚀 Planning to transform my idea into a **SaaS product**
+- 🚀 Transforming Great **Ideas** ➡ ⚡ Into Great **Apps** ➡ 🌱 Yielding Great **Stats**
 
 - 📫 How to reach me [amasin76@gmail.com](mailto:amasin76@gmail.com)
 
